@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://media1.tenor.com/m/2W5CsU8ODwwAAAAd/ryoasuka-ryo.gif" alt="Ryo GIF" width="270">
+  <img src="https://media1.tenor.com/m/2W5CsU8ODwwAAAAd/ryoasuka-ryo.gif" alt="Ryo GIF" width="260">
 </div>
 <p align="center">
   jake⠀or⠀jakob⠀⠀he/him nothing else
