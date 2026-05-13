@@ -5,7 +5,10 @@
   jake⠀or⠀jakob⠀⠀he/him nothing else
 </p>
 <p align="center">
-  usually offtab, w2i⠀⠀<a href="https://rentry.co/prophecysent">rentry</a> + <a href="https://prophecysent.atabook.org/">atabook</a>
+  usually offtab, w2i.⠀ i'm awkward sorry
+</p>
+<p align="center">
+  16yo⠀⠀my info ->⠀⠀<a href="https://rentry.co/prophecysent">rentry</a> + <a href="https://prophecysent.atabook.org/">atabook</a>
 </p>
 <p align="center">
 
