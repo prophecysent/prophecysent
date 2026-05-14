@@ -27,5 +27,5 @@
   <img src="https://64.media.tumblr.com/55edb5f71a3dfd5d3a2527c1f5ed9bc8/088b9ed3f180100b-19/s540x810/60a5b3c769371fac9f8a54736c459226bee07626.pnj">
 </div>
 <p align="center">
-  <a href="https://github.com/garunan">cory</a>⠀ I heavily dislike you Ok.
+  <a href="https://github.com/garunan">cory</a>⠀ Go missing
 </p>
