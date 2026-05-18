@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.makeagif.com/media/11-14-2022/GeFIjX.gif" alt="Ryo GIF" width="250">
+  <img src="https://media1.tenor.com/m/6j4ndMk9TQwAAAAC/judeau-anime.gif" alt="Ryo GIF" width="260">
 </div>
 <p align="center">
   jake⠀or⠀jakob⠀⠀he/him nothing else
@@ -19,7 +19,7 @@
 ⠀
 ⠀
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=prophecysent&color=F6332A" alt="brand of sacrifice" />
+  <img src="https://komarev.com/ghpvc/?username=prophecysent&color=62909F" alt="brand of sacrifice" />
 </p>
 ⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
