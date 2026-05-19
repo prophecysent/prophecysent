@@ -6,7 +6,7 @@ jake ⠀or ⠀jakob⠀ ⠀he/him nothing else
 </p>
 
 <p align="center">
-<a href="https://rentry.co/prophecysent"> main rentry</a>⠀ +⠀ <a href="https://rentry.co/prophecysent"> pt rentry</a>⠀ +⠀ <a href="https://prophecysent.atabook.org/">atabook</a>
+<a href="https://rentry.co/prophecysent"> main rentry</a>⠀ +⠀ <a href="https://rentry.co/jakobhatesponytown"> pt rentry</a>⠀ +⠀ <a href="https://prophecysent.atabook.org/">atabook</a>
 </p>
 <p align="center">
 
