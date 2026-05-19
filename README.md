@@ -4,9 +4,7 @@
 <p align="center">
 jake ⠀or ⠀jakob⠀ ⠀he/him nothing else
 </p>
-<p align="center">
-usually   offtab, w2i.  ⠀ i'm awkward  sorry
-</p>
+
 <p align="center">
 <a href="https://rentry.co/prophecysent"> main rentry</a>⠀ +⠀ <a href="https://rentry.co/prophecysent"> pt rentry</a>⠀ +⠀ <a href="https://prophecysent.atabook.org/">atabook</a>
 </p>
