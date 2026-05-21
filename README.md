@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://media1.tenor.com/m/6j4ndMk9TQwAAAAC/judeau-anime.gif" alt="Ryo GIF" width="260">
+  <img src="https://media.tenor.com/nAQRDM3Cy50AAAAi/martu-berserk-blinkie-segundo.gif" alt="guts GIF" width="260">
 </div>
 <p align="center">
 jake ⠀or ⠀jakob⠀ ⠀he/him nothing else
@@ -17,7 +17,7 @@ jake ⠀or ⠀jakob⠀ ⠀he/him nothing else
 ⠀
 ⠀
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=prophecysent&color=62909F" alt="brand of sacrifice" />
+  <img src="https://komarev.com/ghpvc/?username=prophecysent&color=ffffff" alt="brand of sacrifice" />
 </p>
 ⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
