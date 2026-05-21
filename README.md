@@ -25,5 +25,5 @@ jake ⠀or ⠀jakob⠀ ⠀he/him nothing else
 ⠀
 ⠀
 <p align="center">
-  <a href="https://github.com/garunan">cory</a>⠀has roaches running around his house
+  <a href="https://github.com/owata-p ">cory</a>⠀has roaches running around his house
 </p>
