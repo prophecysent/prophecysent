@@ -17,13 +17,11 @@ jake ⠀or ⠀jakob⠀ ⠀he/him nothing else
 ⠀
 ⠀
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=prophecysent&color=ffffff" alt="brand of sacrifice" />
+  <img src="https://komarev.com/ghpvc/?username=prophecysent&color=000000" alt="brand of sacrifice" />
 </p>
 ⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀
 ⠀
 ⠀
-<p align="center">
-  <a href="https://github.com/owata-p ">cory</a>⠀has roaches running around his house
-</p>
+
